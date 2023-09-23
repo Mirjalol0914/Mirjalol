@@ -1,0 +1,2 @@
+# Mirjalol
+github tutorial vidiyo
